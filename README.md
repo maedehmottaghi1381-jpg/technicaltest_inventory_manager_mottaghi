@@ -1,0 +1,1 @@
+# technicaltest_inventory_manager_mottaghi
